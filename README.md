@@ -1,1 +1,1 @@
-# labs-org.ru
+# http://labs-org.ru
